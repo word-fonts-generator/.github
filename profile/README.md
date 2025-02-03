@@ -1,6 +1,8 @@
-Are you looking for **cool fonts** for your text? With our **Word Fonts Generator**, you can easily create stylish and unique fonts in seconds. Whether you need fancy fonts for your **social media profile, gaming name, or a fun project**, our tool is here to help you stand out!
+[![word fonts generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
 
-[![Fancy Font Generator](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzxluQxXoU7s_Q6xFBBUNRaGcvx6Z4ENXu0jRU_HmtyCWeyW9oyGZGO-H6LB63MbY0YqMrPt481H_FiJD5zDqdTVwCGc79fyKaGkw8QFxbqn5-SMoOvNdSpZ2tjBoo5L4asJ5PL_aDDC4SQIHBL04KSkY-e70rBxkdLvZc35AVamhDJnhQf_lXtr_9qNrJ/w640-h237-rw/Cool.JPG)](https://www.cooltextmaker.com/)
+---
+
+Are you looking for **cool fonts** for your text? With our **Word Fonts Generator**, you can easily create stylish and unique fonts in seconds. Whether you need fancy fonts for your **social media profile, gaming name, or a fun project**, our tool is here to help you stand out!
 
 ---
 
